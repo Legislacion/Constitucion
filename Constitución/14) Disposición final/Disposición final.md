@@ -1,0 +1,1 @@
+Esta Constitución entrará en vigor el mismo día de la publicación de su texto oficial en el boletín oficial del Estado. Se publicará también en las demás lenguas de España.
